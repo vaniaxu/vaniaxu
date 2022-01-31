@@ -1,0 +1,1 @@
+- 🌱 Hello! I’m @vaniaxu! I'm a 21 year-old based in Singapore, currently on a journey towards creating value for the society and my immediate community, while pursuing a degree at the National University of Singapore.
